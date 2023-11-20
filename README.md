@@ -3,3 +3,5 @@ If they fall seriously sick or die between now and New Year's Day 2024, there ar
 American bison were hunted almost to extinction by European settlers. 
 
 Now making a comeback, they could help reverse damage to prairies from decades of poor management.
+Qafisha and his family of nine had barely left the house, he said. He did not want to take any risks. "You saw what happened when you arrived," he said. "We have a door we cannot open and windows we cannot look out from. We do not have any freedom. We are living in fear."
+
